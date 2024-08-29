@@ -19,7 +19,7 @@ sg9082@srmist.edu.in
 Abhimanyu Guleria 
 RA2411003010245
 9630095780
-sg9082@srmist.edu.in
+ag7798@srmist.edu.in
 
 Track Name:-FinTech
 
